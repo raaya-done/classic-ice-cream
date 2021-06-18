@@ -1,0 +1,1 @@
+ice cream is a classic delicacy all around the world. the most basic form of it is vanilla available almost evrywhere. the recipe includes chilling the bowl in the freezer for 30 mins , including the electric whipper , whipping the cream(full fat) and the sugar , and adding the extract. this gives the classic flavour of ice cream at our convinience.
